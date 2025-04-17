@@ -1,2 +1,2 @@
-# Pratik-
-Hello , i'm Pratik 
+# Pratik
+Hello ,  
